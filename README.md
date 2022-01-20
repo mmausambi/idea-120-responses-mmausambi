@@ -13,4 +13,4 @@ We walk, we sprint, we jump, we swim, we fly.<br />
 [the wildreness](https://www.youtube.com/watch?v=IlMVOa1cDEc)
 
 ![Welcome, to the internet!](https://i.imgur.com/kzkCQat.jpg)
-![This is an image](https://www.digminecraft.com/game_commands/images/completed_gamemode_creative.png)
+![This is an image](https://i.imgur.com/clYSuS9.png)
