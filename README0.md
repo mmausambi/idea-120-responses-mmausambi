@@ -3,7 +3,7 @@
 ## A Short ~~Story~~ Poem...
 ### We walk ###
 
-Heav, thick, impenetrable, the air hangs low over the forest trees. <br />
+Heavy, thick, impenetrable, the air hangs low over the forest trees. <br />
 We step, step, step, one foot in front of the other, hundreds of us, thousands of us, or maybe more?<br />
 There's food here, some sweet, juice dripping down our sticky fingers, <br />
 others bitter, making our stomaches ache and ache and ache.<br />
