@@ -8,7 +8,7 @@ The comic is a slice-of-life/comedy with much darker undertones, about a mermaid
 
 ## Messages In the Image
 The image I'll be talking about can be found here: (It's a scene from the comic) <br />
-![Trashmaid](https://www.instagram.com/p/BzQKbIgBZgb/)
+[Trashmaid](https://www.instagram.com/p/BzQKbIgBZgb/)
 If this were something promoted by Disney, or supported by government sources, it would take on a whole other meaning. The visuals that s0s2 uses often get distrubing and vivid, and it would shock audiences.
 
 The **denoted linguistic** messages here are the 2 Lay's chip packets, and the 7/11 shirt the mermaid has on. The chips packets are tied around by some type of string, and floating like balloons from the mermaid'd hand. The 7/11 bag seems to be the mermaid's shirt. The caption, which reads 'Underwater Balloons.'
