@@ -1,12 +1,12 @@
 
 
-#Trashmaid
-</ br>
+# Trashmaid
+<br />
 *Trashmaid* is an on-going comic on Webtoon, by s0s2, an online artist.
-</ br>
+<br />
 The comic is a slice-of-life/comedy with much darker undertones, about a mermaid who lives near the shore, and every illustration is a humourous account of her and the two humans she meets. Though the tone of the comic is light, the artist very much wants to emphasize that reality is much darker in the oceans than we'd like to believe. Every episode brings a new aspect of pollution into focus.
 
-##Messages In the Image
+## Messages In the Image
 The image I'll be talking about can be found here: (It's a scene from the comic) </ br>
 [Trashmaid](https://www.instagram.com/p/BzQKbIgBZgb/)
 If this were something promoted by Disney, or supported by government sources, it would take on a whole other meaning. The visuals that s0s2 uses often get distrubing and vivid, and it would shock audiences.
