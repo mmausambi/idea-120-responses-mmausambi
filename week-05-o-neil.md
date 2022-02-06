@@ -1,3 +1,4 @@
+<!DOCTYPE HTML>
 <style type="text/css">
  <p>
  { margin-left: 40px; }
