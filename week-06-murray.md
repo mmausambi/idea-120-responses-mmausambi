@@ -36,6 +36,8 @@ The answer is frightening. In Fahrenheit 451, such technology is alluded to. Peo
 <br />
 <br />
 Just because this kind of technology is possible, we can’t dismiss all the implications of making them happen.
+<br />
+<br />
 Now, going back to the future of entertainment as Murray has described— cyberdramas. He talks about creating realities where the interface is intuitive enough that it doesn’t impede the story-telling, giving every audience maximum agency and freedom to move around and act in these stories in any way they want, alongside experiencing the main story line, which they will witness as it happens to scripted characters in periodic, broadcasted dramas that they can explore in any way they want (following different characters, picking up from different points in the story). He talks about roleplaying, either with “scripted actors, fellow improvisers, or computer-based chatterbots” (247) to make this reality come true, and how authors will work together to create this reality, to ensure that the audience will experience these stories as fully as possible. To account for every human action is no simple matter. The reality he describes… needs technology to have advanced a lot. I thought at first he meant the audience would float around to experience these stories, without a physical body, but he says that the audience will become people in these fantastical worlds, who live alongside the characters that are the focus of these dramas. The future he describes is indeed interesting and enticing, in a sense.
 <br />
 <br />
