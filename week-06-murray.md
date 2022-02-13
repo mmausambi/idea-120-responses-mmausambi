@@ -14,7 +14,6 @@ No, he was a bit too... I have one of two ideas:
 1) He was ahead of his times.
 2) He overestimated humanity.
 <br />
-<br />
 Assuming he was simply ahead of his times and his predictions just still have not come to pass, then there is some merit to his theory. Media may become more participatory in the future. People might want to immerse themselves very fully in day-to-day entertainment.
 <br />
 <br />
