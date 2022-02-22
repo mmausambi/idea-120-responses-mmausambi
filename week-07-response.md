@@ -1,11 +1,5 @@
 
 # Technology and Ethics
-div {
-  width: 200px;
-  height: 65px;
-  background-color: coral;
-  overflow: scroll;
-}
 
 <div>
 As someone who has a younger sister of 5 years old, I couldn't help but agree with James Birdle's article. My parents both work, and I have school work, so my sister is often, for some periods of time, left unsupervised with the TV as all of us are busy working. To stress the point-- only with the TV, since she's not allowed to watch anything on an iPad or a phone specifically for the reasons Birdle points out throughout his article-- that the internet is not a space for children.
