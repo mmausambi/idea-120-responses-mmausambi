@@ -1,0 +1,5 @@
+# Lets Have Some Fun
+
+I plan to create some fantasy scenario, some kinda exploration and storyline where you get to know the characters you meet. Maybe if you pick stuff up, it'll change the story line. I just played the Boogeyman, the twine story, and it was an amaaaazing work of art. I want to do something similar, where different choices lead to different experiences, and the characters start being endearing to you and you get attached to them.
+
+I'm not sure about the storyline yet, but I'll think about it. I'm a writer in my free time, so I may base the story off something I've already written. But maybe not, since those stories weren't written with this kind of format in mind. For instance, one story I wrote narrates the story of a girl with wings in a world where people like her are given a choice: to have their wings pulled out and live as humans among humans, or forever be hunted down. I want some story line that doesn't involve too much world building, since I don't want huge blocks of text to interrupt from the experience of the story, and at the same time, I want readers to feel like they really have a choice/a voice in how the story unfolds.
