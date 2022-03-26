@@ -1,0 +1,14 @@
+## Shahira Bhasha
+# Games: A Closed Ecosystem
+
+As Anna Anthropy points out, games are developed in a closed ecosystem: they're made by white men, for white men. Specifically, for young white men who have the time and resources to spend on serious gaming, who're then more likely to go on to create games themselves. This environment keeps many others out of their loop, making it hard for anyone else to enter, made worse by publishers in the industry who're pressured to produce games that they're sure will make high returns on their investments to cover the costs of producing these games.
+
+Anna Anthropy explains how this not only limits the diverse representation within these games, but also how it limits its creative possiblitites. When all these games have been designed by white cisgender male programmers who've likely gone to college, all these games start looking the same. If the process of game-making was left in the hands of more and more people outside this specific description-- a mother of three, a farmer, an artist, a child-- the design and rules of these games would change as well as the content. By letting games stay within this small, specific circle, both the possibility for deisgn and creativity become limited. Different people from different backgrounds think differently, and to allow them all to creatively express themselves would be to allow more voices expressing different ideas. This would enrich gaming culture, and allow more minds to explore the full potential of this medium.
+
+There's a game called the "Hummingbird" project. It's something my design professor, Daria, is working on. It's a game that lies at the intersection of gaming and theater. A game set in a diverse VR environment, where the audience become actors in a virtual reality where they've all been kidnapped by an experimental scientist who offers them one chance of escape-- to complete all the trials they face within the VR world as a whole group, using teamwork, which would allow them to "purify" their souls and allow them to escape this dimension. Games like these, which allow the audience to fully immerse in other worlds, to become actors on the stage among fictional characters, open whole new possibilities of where games could go next.
+
+Like Anna Anthropy points out, "games are
+composed of rules, they’re uniquely suited to exploring
+systems and dynamics... digital games are most
+immediately about the direct relationship between the
+player’s actions or choices and their consequences" ("What are game good for"). While other mediums are suited for other things, what games are suited for is exploring systems, rules, and a gamer's choices and their consequences. The more we push what games can do, the more we can explore our given world and ourselves, unlocking new understandings of our realities.
